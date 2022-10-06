@@ -1,5 +1,6 @@
 # Rodney Edward Schlaak Eulogy
 
+### January 9, 1948 - September 12, 2022
 
 Sir Rod.
 
